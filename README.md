@@ -1,2 +1,2 @@
-# Alex-Porfolio.-CV
+# Alex-Porfolio-CV
 Alex Portfolio
